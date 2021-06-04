@@ -1,1 +1,1 @@
-[阴茎锻炼手册-建言](/jiba.plus)
+[阴茎锻炼手册-建言](https://3-8.github.io/jiba.plus)
